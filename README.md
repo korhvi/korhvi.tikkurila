@@ -1,1 +1,0 @@
-# korhvi.tikkurila
